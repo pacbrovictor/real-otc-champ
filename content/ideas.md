@@ -8,11 +8,8 @@
 - BREAKING: Major WWE star makes a shocking move.
 - 
 
-### WWE Hot Takes
-- Is WWE pushing the wrong superstar right now?
-- Has WWE's current storyline actually become better than The Bloodline era?
-- Is this superstar ready to become the next face of WWE?
-- 
+### Solo Sikoa Return
+- Solo Sikoa is back — what does his return mean for Roman Reigns and The Bloodline?
 
 ### WWE Debates
 - 
