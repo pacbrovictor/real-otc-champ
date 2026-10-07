@@ -3,9 +3,15 @@
 ## Content Ideas
 
 ### Breaking News
+- Roman Reigns returns — what does it mean for The Bloodline?
+- WWE announces a major match — here's what fans need to know.
+- BREAKING: Major WWE star makes a shocking move.
 - 
 
 ### WWE Hot Takes
+- Is WWE pushing the wrong superstar right now?
+- Has WWE's current storyline actually become better than The Bloodline era?
+- Is this superstar ready to become the next face of WWE?
 - 
 
 ### WWE Debates
